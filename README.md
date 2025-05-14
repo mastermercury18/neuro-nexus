@@ -1,1 +1,1 @@
-# neuro-nexus
+global industry challenge neuroquantum nexus 
