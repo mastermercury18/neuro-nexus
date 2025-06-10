@@ -1,1 +1,1 @@
-global industry challenge neuroquantum nexus 
+test
